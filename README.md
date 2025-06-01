@@ -1,4 +1,4 @@
-## Hi there 👋, I'm Alexander, 14yo
+## Hi there 👋, I'm Alexander
 
 <!--
 
